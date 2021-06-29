@@ -4,7 +4,7 @@
 - 😀 I like to code, read, puzzles, coin collect and party in my free time.
 - 💬 Ask me a **riddle**
 - 📫 Reach me: [andre@smaniotto.dev.br](mailto:andre@smaniotto.dev.br)
-- ⚡ Fun fact: o futuro é pika!
+- ⚡ Fun fact: 11+2, and "twelve plus one" is an anagram of "eleven plus two".
 - 💻 Bla bla bla...
 
 <p>
